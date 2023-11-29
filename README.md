@@ -16,3 +16,4 @@
 [영남이공대학교](http://www.ync.ac.kr)
 
 ![프로필이미지](./68126514_p0_master1200.jpg)
+출처 : https://www.pixiv.net/artworks/68126514
